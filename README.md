@@ -18,7 +18,7 @@ Instead, you'll want to use a conditioner based dye, like Manic Panic, Snow Leop
 
 ### Step 2: Part your hair!
 If you part your hair using clips and hair ties, it will be much easier to complete the process, as you will know what you have worked on and what you have not.
-For those with long hair, I suggest parting a section for the crown of your head, then two for the lower section of hair. Moving from the bottom up, ending with hair and the top of your head, will give you the best results.
+For those with long hair, I suggest parting a section for the crown of your head, then two for the lower section of hair. Moving from the bottom up, ending with hair at the top of your head, will give you the best results.
 
 ### Step 3: Mix your bleach!
 Put on the gloves and empty the powder bleach into the bowl. Adding the developer about a tablespoon at a time, mix them together with the brush until a foamy paste consistency is reached. 
