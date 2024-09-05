@@ -3,7 +3,7 @@ Bad breakup? Mental breakdown? Going through a phase? We've all been there, and 
 ### _Warning: Bleach can cause chemical burns. Use gloves while working with bleach products and keep windows and doors open for ventilation!_
 
 ### Step 1: Gather your supplies!
-The best place to get hair dyeing supplies is the Sally Beauty! There's on in Southside, so take the 81 or 83 bus to their last stop and you'll be dropped off in the parking lot! 
+The best place to get hair dyeing supplies is the Sally Beauty! There's one in Southside, so take the 81 or 83 bus to the last stop and you'll be dropped off in the parking lot! 
 Here's what you're gonna need
 - Gloves
 - Bowl
